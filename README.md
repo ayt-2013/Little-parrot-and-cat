@@ -11,7 +11,9 @@ And this cat is a friend of color
 **They go to the room togetherThey went to Marie's room together and said, "Marie,We want food for the celebration. Can you help us? Marie said, "Okay, let me tell my mother to go buy sweets and chocolate.**                                 
 **Marie told her mother: "My friends want to celebrate, but they want food. Come and go shopping."**
 ![۲۰۲۱۰۳۱۰_۱۱۲۰۵۴](https://user-images.githubusercontent.com/73178045/110625679-f5a10900-81b4-11eb-88b2-45636438473b.jpg)
-**Marie went shopping with her mother."Look there," Marie said: "Look.There's both sweets and chocolate.**
+**Marie went shopping with her mother."Look there," Marie said: "Look.There's both sweets and chocolate.**              
+**Marie and her mother before the cat,Marie and her mother returned to the cat, the parrot and the little sparrow**
+
 
 
 
